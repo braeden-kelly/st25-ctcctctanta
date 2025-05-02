@@ -1,1 +1,3 @@
-
+- Decord words
+- Use stories to connect
+- Integrate visuals (65% of people are visual learners) 
