@@ -1,2 +1,4 @@
 - https://stirtrek.com/speakers/2025/Elena-Marquetti-Ali.html#abstract
 - https://youtu.be/82kCcLfsc8I?si=kwQyEiJ-GQV9lm8Z
+- https://techterms.com/
+- https://www.techtarget.com/whatis/
